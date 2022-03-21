@@ -46,4 +46,4 @@ Aqui encontrará:
 
 ------------
 
-**Marcella Rocha** (*Doutoranda em Engenharia da Computação | UFRN*) - [Currículo Lattes](http://lattes.cnpq.br/7736814293716169) | [LinkedIn](https://www.linkedin.com/in/alex-souza/) 
+**Marcella Rocha** (*Doutoranda em Engenharia da Computação | UFRN*) - [Currículo Lattes](http://lattes.cnpq.br/7736814293716169) | [LinkedIn](https://www.linkedin.com/in/marcella-andrade-56006912a/) 
